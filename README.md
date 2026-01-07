@@ -1,0 +1,1 @@
+# ACDSee-Mac-License-Lifetime-F
